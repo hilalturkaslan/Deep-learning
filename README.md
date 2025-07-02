@@ -1,1 +1,1 @@
-app done a deep learning case study
+app do a deep learning case study
