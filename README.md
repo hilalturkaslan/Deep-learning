@@ -1,1 +1,1 @@
-app do a deep learning case study
+deep learning is a ai case study
