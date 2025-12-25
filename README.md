@@ -1,1 +1,1 @@
-deep learning for is a do than ai sample case study
+deep learning for is a do make than ai case study
