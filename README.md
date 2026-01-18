@@ -1,1 +1,1 @@
-deep learning for is a do make than ai case study
+deep learning for done make ai case study
